@@ -1,1 +1,0 @@
-# M1-Q3-MALDONADO
